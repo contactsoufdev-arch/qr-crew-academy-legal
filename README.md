@@ -1,1 +1,0 @@
-# qr-crew-academy-legal
